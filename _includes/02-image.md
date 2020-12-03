@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Image of good luck cat](https://ctl.s6img.com/society6/img/W2Tk2-HpKfV0LvzZsTC2tjMTJeY/w_700/prints/~artwork/s6-0025/a/11536998_14313064/~~/good-luck-cat-japanese-maneki-neko-retro-classic-trico-color-cat-prints.jpg?wait=0&attempt=0)
